@@ -5,4 +5,4 @@ My name is Jasmine Kuvuna.
 - 👯 I’m looking to collaborate on different projects
 - 🤔 I’m looking for help with inserting your own programs
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: I am the loudest and funnest once you know me
+- ⚡ Fun fact: ...
